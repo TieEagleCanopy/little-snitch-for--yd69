@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Little Snitch for macOS addon with Little Snitch for macOS secure Addon: identity-theft-protection & device-lock. Featuring identity-theft-protection and
 
 
 
